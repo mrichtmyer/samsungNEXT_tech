@@ -1,0 +1,1 @@
+# samsungNEXT_tech
